@@ -1,0 +1,1 @@
+# TS-z-szyfrowaniem-komentarze
